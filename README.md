@@ -21,3 +21,8 @@
 
 ![image](https://user-images.githubusercontent.com/67679146/234641672-40fd76a0-154a-41dc-8028-0bcd86e992c8.png)
 
+![image](https://user-images.githubusercontent.com/67679146/235293584-5cca55e7-c49e-4466-8aaa-daee19376822.png)
+
+![image](https://user-images.githubusercontent.com/67679146/235293614-2e9f611a-4908-40c0-93be-ac78715f0601.png)
+
+![thiru_profile](https://user-images.githubusercontent.com/67679146/235293648-20143e24-44ac-465a-8975-0efb36d37e7e.jpg)
